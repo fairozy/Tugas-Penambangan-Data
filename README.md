@@ -1,1 +1,3 @@
 # Tugas-Penambangan-Data
+FAIROZY HANIF DARMAWAN
+170411100106
